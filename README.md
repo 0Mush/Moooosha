@@ -1,2 +1,0 @@
-# Moooosha
-Moooosha's Desc
